@@ -1,4 +1,4 @@
-#  
+#  custom Script for easter tap simulator is the best easter tap simulator Script, featuring anti-ban and auto-upgrade. Safe and powerful for all your
 
 
 
